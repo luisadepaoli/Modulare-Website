@@ -1,2 +1,0 @@
-# multimedia
-multimedia casa museo
